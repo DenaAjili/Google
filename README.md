@@ -1,2 +1,3 @@
 # Google
-Step Into The Future
+Step Into The Future.
+The Google office event in Malaysia was a visionary experience where we crafted a dynamic photo opportunity in alignment with the theme "Step into the Future." Embracing Google's distinctive color palette and accentuating it with silver elements, we curated a futuristic ambiance that invited attendees to explore the innovative world of technology and possibilities. Our comprehensive event design encompassed stage and scenic designs, meticulously planned audiovisual system layouts, futuristic lighting concepts, structural layouts, and event space and seating arrangements. These creative event solutions seamlessly transported participants into a realm of technological advancement and forward-thinking, making it a memorable journey into the future at the heart of Google's innovation.
